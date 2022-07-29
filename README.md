@@ -1,5 +1,4 @@
-## Leaving My Mother's House
-A Memoir of a life lived
+## A Memoir of a life lived
 
 
 ### Manifesto
