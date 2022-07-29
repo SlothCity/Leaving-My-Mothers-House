@@ -1,36 +1,14 @@
-## Welcome to GitHub Pages
+## Leaving My Mother's House
+A Memoir of a life lived
 
-You can use the [editor on GitHub](https://github.com/SlothCity/LeavingMyMothersHouse/edit/GH-Pages/README.md) to maintain and preview the content for your website in Markdown files.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+### Manifesto
 
-### Markdown
+I am writing the book I have always wanted to write. The one that speaks compassionately and honestly about the life I have lived. From the perspective of self-acceptance and perhaps as a path to human dignity for all. Whatever that means. 
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+I am using I a lot, because I am writing it. It can be changed later, reworded etc. No editing will happen as I am writing my truth. My passionate truth. Fucks and all. This will not be a work of venting, it will be a work of soul-making for myself and for all who read it.  
 
-```markdown
-Syntax highlighted code block
 
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/SlothCity/LeavingMyMothersHouse/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
 
 ### Support or Contact
 
