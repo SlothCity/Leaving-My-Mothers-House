@@ -1,6 +1,5 @@
 ## A Memoir of a life lived
 
-
 ### Manifesto
 
 I have been told in no uncertain terms by society and everyone alike that writing a book on my mother was a no no. That disclosing what I’ve lived would not be validated, even though, I know it could be valuable if not for anyone else, for me.
