@@ -1,4 +1,4 @@
-## A Memoir of a life lived
+## A Memoir of a Life Lived
 
 ### Manifesto
 
