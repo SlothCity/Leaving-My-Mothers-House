@@ -66,6 +66,10 @@ The torture movie of the woman held against her will and eyes, hands feet sown t
 
 The difference from then to now, is that I am willing to see it. I am ready to be with all of my support and I am willing to see clearly what is there.  
 
+The memories come up one by one then like lazy rain drops threatening a tornado. I remember once, several years ago, when I was scrolling through my facebook feed, out of NO where, a picture of a naked baby, on its back with a dick on its vagina. The imaged burned through my eyes, my mind, my heart and my soul. Waking up the uglyness that I never wanted to see manifested outside of me. It reminded me of the terror that I shut out within - but not for many many years to come would I own it - Of the memory of Gloria Trevi, who was once accused of sex trafficking children or at least accused of it. Who could ever do that? Who could ever do such things...to me?
+ 
+Then, in TO when I was trying my best to get over a love like no other, as I was trying to expand my range of emotion, I searched for a psychological thriller. First came up the Playboy bunny mansion documentary, another one. After watching it, which in restrospect is quite a lineup and synchronistic connection, I came upon Mr. Robot. In the opening Episode, the main character Elliot hacks a coffee shop’s wifi, which turns out to be an underground pornography, ahem, child pornography operation. It fascinates me, torments me and reminds me of another...
+
 
 
 
