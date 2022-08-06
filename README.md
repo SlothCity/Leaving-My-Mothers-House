@@ -10,6 +10,8 @@ My goals are, above all, honesty and to create the kind of work that moves me, a
 
 As it is a matter of the heart, I will aim to write 200 words per day until it feels done.
 
+Trigger warnings in effect.
+
 
 ## Chapter 1 : Murky Waters
 
