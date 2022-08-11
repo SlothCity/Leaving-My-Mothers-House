@@ -84,6 +84,13 @@ Then, there was my mother’s exhusband, Ralph, who once accused me of taking hi
 As I tell my story, it is starting to appear that the only problem was mine, my dilema. My mother would run as fast as she possibly could for my siblings, but not me.  
 My sister once accused my cousin Mauricio of abusing her sexually. She cried in my mother’s arms until she was satisfied. Where as when I raised the alarm on the family patriarch and known sexual predator, who abused me, my sister and likely my brother along with my mother, all of my aunts and quite likely my uncles; I was questioned, distrusted, rebuffed and eventually ostracized by everyone who instead of comforting me offered penance and suspect accusations such as, "We all suffered it! You aren’t special! Get over it." I would forever be marked as the sinner who let out the family secret.
 
+My sister who lived with my grandparents along with my brother for an entire year before I did, denied it vehemently. So it wasn’t until later that I saw a difference in the handling of things, when my sister finally admitted my grandfather had sexually abused her, too. My mother reacted with kindness and support towards her. Unveiling disastrous violence on her family who knew what was happening while she innocently worked her butt off in the US cleaning hotels and putting her picture in papers for men to call her.
+
+I mean, nobody likes the messenger in these kinds moments. And societly, as we know, has learned to shut up people like me very effectively over the centuries. How many women suffered under monsters in hollywood and how many more under monsters in their very own home? It wasn’t until recently that it became acceptable to accuse men and rightly so, of their offenses. 
+
+None of this makes me feel better, it really doesn’t. It raises a lot of anguish, feelings of disgust that I’d rather not touch. It raises feelings of shame, embarrassment, abandonment, loneliness, incurable sadness and depth of hate…then, of thought, of independence and resilience and a willingness to try again – much like the itsy bitsy spiker, I go up the spout again. This time, however, I’ll check my toe holds, the weather and how long ago the water spout was cleaned before embarking a new journey once more. 
+
+
 
 
 
