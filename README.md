@@ -88,7 +88,13 @@ My sister who lived with my grandparents along with my brother for an entire yea
 
 I mean, nobody likes the messenger in these kinds moments. And societly, as we know, has learned to shut up people like me very effectively over the centuries. How many women suffered under monsters in hollywood and how many more under monsters in their very own home? It wasn’t until recently that it became acceptable to accuse men and rightly so, of their offenses. 
 
-None of this makes me feel better, it really doesn’t. It raises a lot of anguish, feelings of disgust that I’d rather not touch. It raises feelings of shame, embarrassment, abandonment, loneliness, incurable sadness and depth of hate…then, of thought, of independence and resilience and a willingness to try again – much like the itsy bitsy spiker, I go up the spout again. This time, however, I’ll check my toe holds, the weather and how long ago the water spout was cleaned before embarking a new journey once more. 
+None of this makes me feel better, it really doesn’t. It raises a lot of anguish, feelings of disgust that I’d rather not touch. It raises feelings of shame, embarrassment, abandonment, loneliness, incurable sadness and depth of hate…then, of thought, of independence and resilience and a willingness to try again – much like the itsy bitsy spider, I go up the spout again. This time, however, I’ll check my toe holds, the weather and how long ago the water spout was cleaned before embarking a new journey once more. 
+
+Then there was the time I turned on my mother’s third husband’s TV, which was in our livingroom hooked up to a VCR, remember those? I pushed play. Porn. WHAT THE FUCK??????? I screamed and was in no uncertain terms shunned again, shut up again. I must have been a teen at this time. This man was later accused of smelling young women’s dirty underwear, apparently, they belonged to a roommate we had at the time. My mother “found them in his pants pocket while doing laundry.” Who knows whose they really were or why at that time my mother decided to do something about it. While he was out of the house, she told me that he had been paying an apartment for another woman. What is true? Who knew. But they continued to see each other until his dying day. Actually, they were the roommates underwear, I remember her moving out immediately after the debacle, honoring herself and being honest about his come on’s and uncomfortable manner.
+
+There was something different about me, about how she, my mother, handled things. And, to this day it feels as though I deserved less from her, or was not entitled to her love, her protection. Some thing makes me think it may be that she thought I was stronger than them, and that I could handle more – should handle more than anyone else or that I should live on less than anyone else.
+
+
 
 
 
