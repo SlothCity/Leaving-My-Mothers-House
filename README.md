@@ -59,7 +59,7 @@ h                                                                               
 
 ## The Color Purple
 
-I read the color purple once and had an epiphany of sorts. There was also the Greek temple story, in which women devirginized each other using a wooden (perhaps) phallis. It was a ritual, a sacred, humane way to introduce the world of sexuality for women. Then there was Antwone Fischer, the man who was abused by women in his family life and after that movie I bawled. I understood something then and there and could not place it. I went crazy almost and almost had myself committed during that time. It was all coming up, surging up and I could no longer contain it. This was in my early 20’s. This was when I turned to alcohol.
+I read the color purple once and had an epiphany of sorts. There was also the Greek temple story, in which women devirginized each other using a wooden (perhaps) phallis. It was a ritual, a sacred, humane way to introduce the world of sexuality to girls becoming women. Then there was Antwone Fischer, the man who was abused by women in his family, after that movie I bawled. I understood something then and there and could not place it. I went crazy almost and almost had myself committed during that time. It was all coming up, surging up and I could no longer contain it. This was in my early 20’s. This was when I turned to alcohol.
 
 I felt much the same, I think, when I came upon the organization (operation) underground railroad a year or so ago. I’m now 42. All the film shorts I watched, they all resonated. I knew then what it was, it was more than starting to take shape, it was developing into my own set of shorts of memories from over the years. And it is happening again. I get shorts.  
 
