@@ -93,6 +93,11 @@ Then there was the time I turned on my mother’s third husband’s TV, which wa
 
 There was something different about me, about how she, my mother, handled things. And, to this day it feels as though I deserved less from her, or was not entitled to her love, her protection. Some thing makes me think it may be that she thought I was stronger than them, and that I could handle more – should handle more than anyone else or that I should live on less than anyone else.
 
+Or was it that what she profusely apologized for was so much worse that opening the door to caring, comforting and allowing me to process would result in demise for her? For all? Except me, of course. 
+
+I once uttered that I wanted to be a lawyer, this was after years of swearing I would be a model and I was praised for it. My mother immediately said, No, being a lawyer is dangerous. Mind you, this was the United States, while visiting a friend of my mother’s whose daughter who wanted to be a judge. The mother might have been a therapist, much like the other therapsits my mother befriended. They all counseled me since I was obviously severely mentally disturbed according to my mother and likely then became her friends. We would go over and visit as if we were family all the while I stood there in the middle of all of it feeling displaced, disconnected, wronged and accused in so many ways of things that I would not come to understand for a long, long time. Uncomfortable became the way I was all the time.  
+Still, It wasn’t till my late teens that panic attacks, severe anxiety and insomnia took over.
+
 
 
 
