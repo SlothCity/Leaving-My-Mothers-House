@@ -169,7 +169,36 @@ Here. We. Are. Here. We. Are. Here. I am. Now. Found.
 
 It is as if this healing has been for all of us.
 
-And so, when I think about it again I find myself sad, angry, upset by all the neglect, the disregard for my person. The Child.
+And so, when I think about it again I find myself sad, angry, upset by all the neglect, the disregard for my person: the Child. 
+
+The dream I had yesterday, no this morning was about the Fisher King, helping him heal. Marriage, a 6 or 7 year old daughter, (this is how old I was when I let my mother know about my grandfather's sexual abuse) and an 8 month old boy. 
+
+I had another terrible headache today. 
+
+My mother, how could I understand? How could she do that? How could one turn their daughter over to sexual predators? How does that happen. I may never ever understand. I will overcome. I am stronger as a result. I am.  I too could have been my mother. I am reminded of Thich Nhat Hanh's poem "Call me by my True Names". 
+
+In a world of pain, hate, inability to find relief from myself. I remember, I too could have been her. Anyone of us could have been her and lived was she  was given to live. 
+
+Today while doing yoga I felt my back crying and screaming. I looked and for the first time in a long time, saw my trapped little girl. Trapped in a box, trapped in a room, a closet. Trapped. And Ava, my spiritual advisor, said, "that often happened when you were little. Your mother tied you up, put you in locked rooms, starved you, didn't let you sleep properly and treated you like a stepchild she hates." 
+Wow. I grieved. I cried. Something about that, about seeing it, acknowledging it felt right and brought tears to my eyes. More than tears. Deep, loud cries till my back eased. And today, I selected grieving as my highlander position. I grieved the loss of my innocence at such a young age. And wondered again, how could she have done these things to a child, her child. To me. I remember feeling trapped, yet at other times I felt safe in a box, a dark box where no one could find me locked at the bottom of the ocean. Safe in the dark, cold dark where they had forgotten I was placed. 
+
+##The Pink Slipper
+
+I am writing a memoir and I am seeing how I can write it in the present, taking steps into the past and returning home to the present. Diving in and coming back up for air as necessary. 200 words per day. 200 words at a time. 
+
+On my 5th birthday my mother gave me my dream Barbie. Her dress was pink with glow in the dark stars, a parasol...I was in love. Days later, my love went missing. I would not know what happened to that Barbie for many years to come. She represented everything I wanted to be. I held her in highest of esteem as my Barbie, my toy but also as my companion. A gift I treasured. 
+
+As I was shaped into a kind of Cinderella of our household, the Barbie came to represent that part of me, having overcome something. 
+A couple of years ago, I paid good money to buy that Barbie for myself. I held her once again, kept her close and even confided in her. As I've grown into different aspects of myself, I've learned to let go of symbols of the past. 
+
+Last new years I came across a mother and daughter, about 6 years of age. It was Christmas Eve, they were asking for financial help outside a safeway. I stopped to eat my meal on a bench next to them, to learn about their situation.  The little girl immediately shared how much she missed Christmas back home, in Romania. Where she did get presents. How she loved Barbies and wanted to write a letter to Santa that he may send another.  
+
+In that moment I knew what I had to do. I went home, collected my Barbie, and repackaged her in her box as best I could given the age of the vintage box. There was one thing missing, I could not find one slipper...
+
+It took 6 months before I would find the slipper again. Knowing the little girl and her mom would be back to their bench, I startegically placed the slipper between the slats. Hidden in plane sight, that someone, say who would know what, excuse me, who a tiny pink slipper would fit. 
+I found this slipper after reconnecting with a man I had walked away from a year earlier due to his then very recent, very painful divorce. I was excited to reconnect, though I found this time to connection was missing something or had something extra rather...another person. I walked respectfully walked away with my heart in my hand. Then, low and behold, Cinderella Barbie was completed and able to be fully given to her next owner. 
+
+I am excited to give away the new cinderellay slipper to the star barbie. I I found when I connected with Jamaal the other night. I am not longer cinderella and I can be sure of it now, when I give away the slipper to the girl who also holds the sparkly barbie it belongs to.  In my trip last night, Ava came to life and embodied me. Not cinderella but her not in pink, starry dress, but in white, translucent and numinous star covered dress. Lightup from within. Ava, my Self is finding herself inside of me or I am finding her inside of me where as before I had always seen here somewhere above my left side. The first time I saw her she was in the upper left hand corner of a room, when I was with a shaman. Recently she had shown up just above my head on my left side. There she lights up my life, now she is me and I am her. We are we and we are one.  
 
 
 
