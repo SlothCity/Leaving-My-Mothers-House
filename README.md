@@ -322,12 +322,14 @@ El maestro fue el único que regaño a mi mamá y a mi hermana. Ellas se equivoc
 
 ¿Que es vivir en este momento, sin querer estar en un futuro que no existe? Que es estar aquí, en este momento?
 No tengo todo aquello de la fantasia, tengo esto: el amor de 3 perros, los consejos de mi Ser. Comienzo dejando los números y las monedas como guias azarosas, esto no es par mi. Mi alma es para mí, mi intuición también es para mi, junto con mis guias internas desarrollando se y mi consciencia convirtiéndose en quántica. 
- Unedited
+ 
 
 5.9.22 
-Anoche soñé que iba a casa de mi madre. No esperanza el camino, manejaba el Mustang que corría demasiado rápido y aunque le podía frenos batallaba para controlar lo bien. Vi una Salida. La de casa de mama. Si dice mi hermana Denisse, apareció en el asiento pasajero. Tome la salida “Mesa” y nos llevó a una península. Al final de ella un círculo con círculos adentro. Como una isla. El primer círculo de los internos tenía una máquina de spin art. Yo estaba maravillosamente alegre y asombrada. El primer circulo había sido construido por Google. Los otros círculos, serian 4 cuatro en total,no habian sido desarrollados mas aya de ser escarbados. 
+Anoche soñé que iba a casa de mi madre. No reconocia el camino, manejaba mi Ford Mustang que corría demasiado rápido y aunque le ponía frenos batallaba para controlar lo bien. Vi una Salida. La de casa de mama. Si, dijo mi hermana Denisse, ella apareció de repente en el asiento pasajero. Tome la salida a “Mesa” y nos llevó a una península. Al final de ella un círculo con círculos adentro. Como una isla. El primer círculo de los internos tenía una máquina de spin art. Yo estaba maravillosamente alegre y asombrada. El primer circulo había sido construido por Google. Los otros círculos, serian 4 cuatro en total,no habian sido desarrollados mas aya de ser escarbados. 
  
 En este momento veo mis ovarios, mi vaina plenamente alegre, de colores, como el árbol de colores que dibuje por del camino de Santiago. 
+
+Unedited
  
 Los otros círculos de amistad, familia, escuela y carrera. Mi hermana habla con una muchacha de allí. ¿Le pregunta, de que lado queda de la salida Lawrence? Ella le contesta, del lado norteño. Me asombra como mi hermana habla tan fácilmente, abiertamente con la no conocida. Parece que trabaja allí.  
 Google representa el cerebro, como el consciente e inconsciente. La muchacha es el sentro de todo. Soy tu ser, me dice. 
