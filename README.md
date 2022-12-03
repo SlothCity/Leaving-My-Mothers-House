@@ -328,13 +328,11 @@ No tengo todo aquello de la fantasia, tengo esto: el amor de 3 perros, los conse
 Anoche soñé que iba a casa de mi madre. No reconocia el camino, manejaba mi Ford Mustang que corría demasiado rápido y aunque le ponía frenos batallaba para controlar lo bien. Vi una Salida. La de casa de mama. Si, dijo mi hermana Denisse, ella apareció de repente en el asiento pasajero. Tome la salida a “Mesa” y nos llevó a una península. Al final de ella un círculo con círculos adentro. Como una isla. El primer círculo de los internos tenía una máquina de spin art. Yo estaba maravillosamente alegre y asombrada. El primer circulo había sido construido por Google. Los otros círculos, serian 4 cuatro en total,no habian sido desarrollados mas aya de ser escarbados. 
  
 En este momento veo mis ovarios, mi vaina plenamente alegre, de colores, como el árbol de colores que dibuje por del camino de Santiago. 
-
-Unedited
  
-Los otros círculos de amistad, familia, escuela y carrera. Mi hermana habla con una muchacha de allí. ¿Le pregunta, de que lado queda de la salida Lawrence? Ella le contesta, del lado norteño. Me asombra como mi hermana habla tan fácilmente, abiertamente con la no conocida. Parece que trabaja allí.  
-Google representa el cerebro, como el consciente e inconsciente. La muchacha es el sentro de todo. Soy tu ser, me dice. 
+Los otros círculos de amistad, familia, escuela y carrera. Mi hermana habla con una muchacha de allí. Le pregunta, "de que lado queda de la salida Lawrence?" Ella le contesta, del lado norteño. Me asombra como mi hermana habla tan fácilmente, abiertamente con la no conocida. Parece que trabaja allí.  
+Google representa el cerebro, como el consciente e inconsciente. La muchacha es el centro de todo. Soy tu ser, me dice. 
 En el día de las madres reconstruiste tu isla psíquica.  Creo que comenze a construirla.
- 
+ Unedited
 5.10.22 el matrimonio 
 Me parece que siempre fuimos empujados para casarnos, para tener hijos aunque mi madre nunca lo quiso, ella quería que me quedara en casa, pero algo de la sociedad, algo en mi mente, en mí, en mi corazón, tal vez. ¿O algo que se me grabó, que no necesariamente me cabe a mí es el matrimonio? He batallado tanto en relaciones, sea porque soy sensible, sea porque he tenido mis problemas, he tenido mis desafíos que yo he tenido que trabajar sola. Sea por lo que sea. No he logrado una relación de largo plazo no he logrado el matrimonio ni lo quiero. Al fin de cuentas, cuando me llega o no lo he querido en un pasado y no es decir que nunca la voy a querer. Pero lo que sí me queda claro es que no lo necesito, no necesito el matrimonio para ser completa. Para ser alegre, para vivir mi vida. En este momento no necesito a alguien que me diga muy bien, lo hiciste, lo lograste, eso es algo que se logra y que se celebra por dentro. Y con alguien que haya corrido el maratón conmigo tal vez .Pero más que nada la independencia no es estar sola h la dependencia no es estar casada. La salud permanece adentro de mí. Siendo algo que valora y que libera con cada paso que tomó hacia adelante. 
 No entiendo lo del Dios. Dionisos. Y Denis. Mi sombra, mi hermana. Me gustaría. Explorar este concepto. A las profundidades para entender bien. qué es lo que es? Sigo trabajando con mis guías para entender más profundamente. ¿Qué es lo que está pasando? Y cómo lograr lo que quiero lograr?
